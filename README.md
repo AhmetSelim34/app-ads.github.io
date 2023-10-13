@@ -1,1 +1,1 @@
-# app-ads.github.io
+google.com, pub-2861305472452309, DIRECT, f08c47fec0942fa0
